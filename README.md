@@ -1,2 +1,0 @@
-# beakstar.com
-beakstar.com
